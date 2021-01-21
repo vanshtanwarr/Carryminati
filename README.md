@@ -1,0 +1,2 @@
+# Carryminati
+The great youtuber  better known as CarryMinati, is an Indian YouTuber and streamer from Faridabad, India. He is known for his comedic skits and reactions to various online topics on his channel CarryMinati. As of 12 November 2020, Nagar is the most subscribed individual creator on YouTube India with over 26 million subscribers on his channel CarryMinati.[2] His other channel Carryislive is dedicated to gaming and live streams.
